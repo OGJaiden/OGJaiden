@@ -6,4 +6,4 @@ If you're looking for custom UI work, EUP development, website creation, or gene
 
 📩 Contact Me:
 📧 Email: ogjaidenbusiness@gmail.com
-💬 Discord: OGJaiden!
+💬 Discord: OGJaiden
